@@ -5,7 +5,7 @@ date: 2026-03-26
 category: Notat
 tags: []
 refs: []
-publish: true
+publish: false
 ---
 {{< figure src="/images/img_noen-tanker-jeg-har-1.jpg" caption="Rodolfo Nieto" >}}
 
