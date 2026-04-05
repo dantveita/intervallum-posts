@@ -7,7 +7,7 @@ tags:
   - musikk
   - holocaust
 refs:
-  - Klagesangene
+  - Klagesangene 3
 publish: true
 ---
 {{< figure src="/images/img_om-mahlers-forste-symfoni.jpg" caption="Ukjent, *The Hunter's Funeral* (ca. 1850)" >}}

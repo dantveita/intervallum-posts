@@ -1,10 +1,14 @@
 ---
-title: "Preken på Maria budskapsdag 2026"
-slug: "preken-pa-maria-budskapsdag-2026"
+title: Preken på Maria budskapsdag
+slug: preken-pa-maria-budskapsdag-2026
 date: 2026-03-22
-category: "Preken"
-tags: [faste, maria, engler]
-refs: ["Lukas 1"]
+category: Preken
+tags:
+  - faste
+  - maria
+  - engler
+refs:
+  - Lukas 1
 publish: true
 ---
 
