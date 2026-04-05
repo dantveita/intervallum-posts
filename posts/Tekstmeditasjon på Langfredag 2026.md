@@ -23,7 +23,7 @@ Men nå, denne kvelden vi erindrer, hadde de ikke rett? Er langfredag dagen da d
 
 Han som var lys, håp og frelse, _var et mennesket av kjøtt og blod_, .... en sønn, et barn, som blør som oss andre, ut i armene til sin mor. Hun som med gledestårer hadde sunget om å ha blitt sett av Gud i sin fattigdom, ble nå fattigere enn noen sinne.
 
-«Tal til din mor,» gjenforteller benediktinerne på 1400-tallet som fra Marias egen munn: «Tal til din mor og gjør henne glad, selv om du allerede forlater meg mitt kjære håp.» Han som skulle være til trøst for sin mor og bære hele verden til frihet, klarte han ikke lenger bære seg selv? Nå som hun må bære _ham_ og trøste _ham_, og tørke hans blod. Hvem kan trøste henne nå? Hvem skal bære verden?
+«Tal til din mor,» [gjenforteller benediktinerne på 1400-tallet som fra Marias egen munn](https://www.youtube.com/watch?v=DoaEEVMrL-g): «Tal til din mor og gjør henne glad, selv om du allerede forlater meg mitt kjære håp.» Han som skulle være til trøst for sin mor og bære hele verden til frihet, klarte han ikke lenger bære seg selv? Nå som hun må bære _ham_ og trøste _ham_, og tørke hans blod. Hvem kan trøste henne nå? Hvem skal bære verden?
 
 Men i blodet som ble utøst, står det skrevet, at det også var vann. Vann gir liv. Lyset skinner i et overveldende mørke, og mørket har ikke overvunnet det.
 
