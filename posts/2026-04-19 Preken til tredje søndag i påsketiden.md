@@ -51,8 +51,8 @@ Det siste som skjer før forfatteren skriver at Jesus bøyer hodet og dør, er a
 
 Hva skal vi se? Jesu død og oppstandelse er et mysterium. Men det er også [en åpenbaring](https://en.wiktionary.org/wiki/%E1%BC%80%CF%80%CE%BF%CE%BA%CE%AC%CE%BB%CF%85%CF%88%CE%B9%CF%82), og dette er for forfatteren en åpenbaringshendelse. Vi har fått vite hvem som er den gode gjeteren. Nå få vi vite hvordan han ser på flokken sin. Soldatene, fanget i rivaleriets logikk, ler og kaster lodd, men de kunne ikke vinne Guds tilhørighet, for Jesus gav den selv, gratis, til alle. Ingen kunne ta hans liv, for han gav det selv. Og ingen kunne ha mer rett å være med i hans flokk enn andre — selv ikke hans egen mor. For i hans øyne er vi alle samme flokk, ingenting skiller oss i ham — ikke tradisjon, ikke nasjonalitet, ikke rang, ikke blod. 
 
-Vi tror det var dette forfatteren så, han som så vakkert skriver i sitt første kapittel om seg selv, at han sto fram, utsendt av Gud, Johannes, som kom for å vitne om det sanne lys som lyser for hvert menneske. Han som kom til den verden som var blitt til ved ham, men som ikke kjente ham igjen. Evangelisten hadde fått se at det ikke finnes mange flokker for Gud, bare én flokk og én god gjeter — gjeteren som gir sitt liv for alle sine sauer. 
+Vi tror det var dette de første kristne så, som evangelistene ville dele. Forfatteren av Johannes, som så vakkert skriver i sitt første kapittel om seg selv, at han sto fram, utsendt av Gud, kom for å vitne om det sanne lys som lyser for hvert menneske. Hyrden som kom til den verden som var blitt til ved ham, men som ikke kjente ham igjen. Evangelisten hadde fått selv se at det ikke finnes mange flokker for Gud, bare én flokk og én god gjeter — gjeteren som gir sitt liv for alle sine sauer. 
 
- Det er som om han sier til oss: Se, Han er vår hyrde, og se, dette er hans flokk. Se, Guds lam, som bærer verdens synder, gir oss sin fred. 
+Det er som om han sier til oss: Se, han er vår hyrde. Og se, dette er hans flokk. Og se, Guds lam, som bærer verdens synder, gir oss sin fred. 
 
 Ser vi det?
