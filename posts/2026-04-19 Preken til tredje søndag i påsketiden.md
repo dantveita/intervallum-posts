@@ -53,4 +53,4 @@ Hva skal vi se? Jesu død og oppstandelse er et mysterium. Men det er også [en 
 
 Johannes, utsendt av Gud, [kom for å vitne om det sanne lys](https://bibel.no/nettbibelen/les/nb-2024/JHN/JHN.1) som lyser for *hvert menneske* — og det er Jesus Kristus. Han kom til verden, som var blitt til ved ham, men verden kjente ham ikke. Var de fanget i den onde spiralen? Men nå var det blitt åpenbart, at  det ikke finnes mange flokker for Gud, bare én flokk og én gjeter — gjeteren som gir sitt liv for alle sine sauer. Det er som om Johannes nå sier til verden, mens de enda ikke kunne se: Se, han som skapte verden er vår hyrde. Og se, alle er hans flokk. Han bærer *verdens* synder, og gir *oss* sin fred. 
 
-Ser vi det?
+[Ser dere det?](https://bibel.no/nettbibelen/les/nb-2024/JHN/JHN.20?verse=JHN.20.30&verseto=JHN.20.31)
