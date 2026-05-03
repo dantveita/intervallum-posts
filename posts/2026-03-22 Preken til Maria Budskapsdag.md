@@ -11,7 +11,6 @@ refs:
   - Lukas 1
 publish: true
 ---
-
 {{< figure src="/images/rubens_maria.jpg" alt="" caption="Rubens, *The Virgin of the Immaculate Comception* 1628" >}}
 
 [Lenke til søndagens evangelietekst](https://bibel.no/nettbibelen/kirkearets-tekster/nb-2024/2025/mary-sunday-lent)
