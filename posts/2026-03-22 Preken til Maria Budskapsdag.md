@@ -1,6 +1,6 @@
 ---
-title: Preken på Maria budskapsdag
-slug: preken-pa-maria-budskapsdag-2026
+title: Preken til Maria budskapsdag
+slug: preken-til-maria-budskapsdag-2026
 date: 2026-03-22
 category: Preken
 tags:
